@@ -1,1 +1,2 @@
-I like working on things that I like 😂
+Interested in many things
+Currently working on ml and building smart machine
