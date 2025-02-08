@@ -1,6 +1,5 @@
-I document my stuff here (literally everything that can be documented)  
+I document my stuff here.
 
-Currently:  
-Human, its Brain, its capabilities, its creativity, how to amplify it.  
-AGI, creative species that can create explanatory knowledge and are inherently disobedient.
-
+My Interest (now):  
+General Intelligence, Autonomous Softwares (Software 2.9), Creativity.  
+Knowledge Creation, Universal Constructors and Computers, Quantum Information and Evolution.
